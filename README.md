@@ -1,1 +1,1 @@
-# Creator-s-Studio-Neeraj
+# Creator-s-Studio-NeerajI am a passionate Python and Machine Learning learner with strong interest in Data Analysis, Video Editing, and 3D Modeling. I enjoy building real-world projects that solve problems and showcase creativity. Currently, I am actively seeking Internship and Freelancing opportunities to apply my skills and grow professionally.
